@@ -6,10 +6,7 @@ Their colours shining, one by one.
 They open softly to the light,
 And fill the world with beauty bright.
 
-The roses dance upon the breeze,
-While daisies smile beside the trees.
-The tulips sway in gentle air,
-Like little dreams blooming everywhere.
+The roses are awesome.
 
 Through summer rain and winter cold,
 Their quiet stories still unfold.
