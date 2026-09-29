@@ -1,19 +1,23 @@
 # my-poem
 
 
-Flowers bloom beneath the morning sun,
-Their colours shining, one by one.
-They open softly to the light,
-And fill the world with beauty bright.
+Flowers bloom beneath the moon,
+Their twisted petals whisper tunes.
+They open slowly in the night,
+And hide their faces from the light.
 
-The roses are awesome.
+The roses are awesome, but something feels wrong,
+Their thorns grow sharper as shadows grow long.
+A cold wind moves through the empty air,
+And something watches from somewhere near.
 
 Through summer rain and winter cold,
-Their quiet stories still unfold.
-They teach us how to grow and bloom,
-And bring a little joy and room.
+Their darkened roots begin to unfold.
+They drink the rain, they feed on fear,
+And bloom whenever death is near.
 
 So when you see a flower grow,
-Remember all the things they show:
-That even something small and bright
-Can fill the world with warmth and light.
+Don't get too close, and don't you know:
+For beauty can hide a terrible sight,
+Especially when flowers bloom at night.
+
